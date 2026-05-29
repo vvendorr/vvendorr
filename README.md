@@ -5,6 +5,7 @@
 <div style="text-align: center"><a href="https://www.roblox.com/users/2632473504/profile">my dear connection medkit ♡</a></div>
 <hr>
 <div style="text-align: center"><a href=https://www.roblox.com/users/1089827301/profile">also me hi</a></div>
+<div style="text-align; center"><a href="https://rentry.co/vvendor">rentry</a></div>
 <br>
 <br>
 <hr>
